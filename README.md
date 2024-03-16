@@ -5,7 +5,6 @@
 - 📫 You cant reach me 
 - 😄 Pronouns: Nothing to say bro 
 - ⚡ Fun fact: I'? just an ordinary person
-- 
 
 <!---
 Javithahamad2006/Javithahamad2006 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
